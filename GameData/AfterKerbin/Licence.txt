@@ -1,0 +1,1 @@
+This mod is licenced under the CC BY-NC-ND licence.
